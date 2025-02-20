@@ -39,4 +39,4 @@ But you haven`t changed at all.
 In a few hundred years, you will regret your selection in solitude
 
 "不老不死" looks very nice.
-However, It may cause you to experience the death that humans have never experienced
+However, It may cause you to experience the second type of death that humans have never experienced
